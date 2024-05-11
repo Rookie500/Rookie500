@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rookie500
-- as my name sugests i`m rookie, never had any type off education towards programing, but im looking to learn all about it by my self, any helps with beginners books/articles will be much welcome
+- as my name sugests i`m a rookie, never had any type off education towards programing, but im looking to learn all about it by my self, any helps with beginners books/articles will be much welcome
 - 📫 How to reach me ... Rookie500@proton.me
 
 
